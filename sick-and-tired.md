@@ -1,4 +1,4 @@
-# Sick and Tired of being Sick and Tired
+# Sick and Tired of being Sick and Tired [posted 25.12.2025]
 
 I've been sick pretty much on-and-off over the last two and a half months. Nothing terribly bad, mind you, just some common cold- or flu-like symptoms.  
 Still, this has been enough to knock me out and keep me in bed multiple times - and even in the in-between phases, I've not been feeling entirely 100% either. I've missed deadlines in my job because of this constant stop-start-stop dynamic, I've not been able to do many of the things I wanted to do or work towards some of the goals and challenges I'd set for myself. And worst of all, I've not been able to really enjoy many of the things I could still do based on a lingering feeling that this could have been so much more and/or better, if only I'd been well.  
